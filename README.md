@@ -52,7 +52,7 @@ We focus on delivering reliable infrastructure that supports seamless business o
 
 ### Conclusion
 
-For businesses in Atlanta GA, J3K Technologies provides dependable and high-performance network infrastructure services. Whether you need a structured cabling contractor Atlanta GA, a fiber optic installation partner Atlanta GA, or an [ethernet cabling service provider Atlanta GA](https://www.j3ktech.com/services/structured-cabling/),] our team delivers the knowledge, experience, and quality your business deserves.  
+For businesses in Atlanta GA, J3K Technologies provides dependable and high-performance network infrastructure services. Whether you need a structured cabling contractor Atlanta GA, a fiber optic installation partner Atlanta GA, or an [ethernet cabling service provider Atlanta GA](https://www.j3ktech.com/services/structured-cabling/), our team delivers the knowledge, experience, and quality your business deserves.  
 
 Partner with J3K Technologies today to ensure your network is strong, secure, and ready for future growth.
 
